@@ -1,4 +1,4 @@
-
+The first assignment
 # About Me
 Hello! My name is Cara Cai and I live in Shanghai, China. I work hard on going out of my comfort zone and stretching myself. I have a lot of hobbies such as doing sports and listching to music. I am also a volleyball player. My college life has begun in NYU Shanghai with the goal of learning new things and meeting more friends.
 
